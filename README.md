@@ -1,2 +1,2 @@
 # FYP2025
-Fuck you project 
+F your projects 2025
